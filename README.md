@@ -1,1 +1,1 @@
-I research and teach philosophy of science at Hofstra University in New York, USA. I am also Executive Editor of *Philosophy, Theory, and Practice in Biology* (*PTPBio*), a free-to-authors, free-to-readers, scholarly, open acess journal.
+I research and teach philosophy of science at Hofstra University in New York, USA. I am also Executive Editor of *Philosophy, Theory, and Practice in Biology* (*PTPBio*), a free-to-authors, free-to-readers, scholarly, open access, library-published academic journal.
